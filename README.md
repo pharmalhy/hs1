@@ -1,6 +1,13 @@
-真相部落 真相不落<br>
-當前有效網址：<br>
-http://7.61.webhop.biz/<br>
-http://375.myz.infom/<br>
-http://88.myftp.biz/<br>
-http://7.77.hpc.tw/<br>
+# 真相部落 有圖文 有音頻 有視頻 有真相<br>
+# 當前有效網址：<br>
+http://982.softwareritel.com/<br>
+http://833.microcycas.com<br>
+http://488.asylarman.com<br>
+http://329.lostpositive.org<br>
+
+<a href="http://329.lostpositive.orgm/zx/" target="_blank"><img src="http://329.lostpositive.org/pic/2016/11/p7829911a215010452.jpg">
+
+                                   飞天20位获得金奖学生的精彩表演
+</a>
+<div class="linkbox"><div class="title">真相<div id="url"><a href="http://zx.ddns.me/p5a24" target=_blank>http://zx.ddns.me/p5a24</a>     <a href="http://t.cn/RJI4QAJ" target=_blank>http://t.cn/RJI4QAJ</a>     <a href="http://po.st/FowNh8" target=_blank>http://po.st/FowNh8</a>     <a href="http://po.st/0sN2eF" target=_blank>http://po.st/0sN2eF</a></div></div><div class="title">真相部落首頁<div id="url"><a href="http://zx.ddns.me/yt8fk" target=_blank>http://zx.ddns.me/yt8fk</a>     <a href="http://t.cn/RJI4Qx8" target=_blank>http://t.cn/RJI4Qx8</a>     <a href="http://po.st/TXC6h7" target=_blank>http://po.st/TXC6h7</a>     <a href="http://po.st/fbQEpL" target=_blank>http://po.st/fbQEpL</a></div></div><div class="title">真相<div id="url"><a href="http://zx.ddns.me/gpi5n" target=_blank>http://zx.ddns.me/gpi5n</a>     <a href="http://t.cn/RJI4QYz" target=_blank>http://t.cn/RJI4QYz</a>     <a href="http://po.st/3WUgfh" target=_blank>http://po.st/3WUgfh</a>     <a href="http://po.st/3WUgfh" target=_blank>http://po.st/3WUgfh</a></div></div><div class="title">真相部落首頁<div id="url"><a href="http://zx.ddns.me/qai1z" target=_blank>http://zx.ddns.me/qai1z</a>     <a href="http://t.cn/RJI4Qx8" target=_blank>http://t.cn/RJI4Qx8</a>     <a href="http://t.cn/RJI4Qk6" target=_blank>http://t.cn/RJI4Qk6</a>     <a href="http://po.st/sOKhsd" target=_blank>http://po.st/sOKhsd</a></div></div><div class="title">真相<div id="url"><a href="http://zx.ddns.me/0jta9" target=_blank>http://zx.ddns.me/0jta9</a>     <a href="http://t.cn/RJI4QAJ" target=_blank>http://t.cn/RJI4QAJ</a>     <a href="http://po.st/L78YvR" target=_blank>http://po.st/L78YvR</a>     <a href="http://t.cn/RJI4QYz" target=_blank>http://t.cn/RJI4QYz</a></div></div><div class="title">真相部落首頁<div id="url"><a href="http://zx.ddns.me/boxv8" target=_blank>http://zx.ddns.me/boxv8</a>     <a href="http://t.cn/RJI48SR" target=_blank>http://t.cn/RJI48SR</a>     <a href="http://po.st/IME2SW" target=_blank>http://po.st/IME2SW</a>     <a href="http://po.st/y1eNNB" target=_blank>http://po.st/y1eNNB</a></div></div><div class="title">真相<div id="url"><a href="http://zx.ddns.me/nlgf7" target=_blank>http://zx.ddns.me/nlgf7</a>     <a href="http://t.cn/RJI4QAJ" target=_blank>http://t.cn/RJI4QAJ</a>     <a href="http://po.st/3WUgfh" target=_blank>http://po.st/3WUgfh</a>     <a href="http://po.st/3WUgfh" target=_blank>http://po.st/3WUgfh</a></div></div><div class="title">真相部落首頁<div id="url"><a href="http://zx.ddns.me/yrwnd" target=_blank>http://zx.ddns.me/yrwnd</a>     <a href="http://t.cn/RJI4Qk6" target=_blank>http://t.cn/RJI4Qk6</a>     <a href="http://po.st/fbQEpL" target=_blank>http://po.st/fbQEpL</a>     <a href="http://po.st/TcYQQl" target=_blank>http://po.st/TcYQQl</a></div></div><div class="title">今日點擊<div id="url"><a href="http://zx.ddns.me/ce5ik" target=_blank>http://zx.ddns.me/ce5ik</a>     <a href="http://t.cn/RJI4RVb" target=_blank>http://t.cn/RJI4RVb</a>     <a href="http://po.st/PhOsu3" target=_blank>http://po.st/PhOsu3</a>     <a href="http://po.st/DgrXRY" target=_blank>http://po.st/DgrXRY</a></div></div><div class="title">中國禁聞<div id="url"><a href="http://zx.ddns.me/s8poe" target=_blank>http://zx.ddns.me/s8poe</a>     <a href="http://t.cn/RJI4Rlx" target=_blank>http://t.cn/RJI4Rlx</a>     <a href="http://po.st/3WQy1q" target=_blank>http://po.st/3WQy1q</a>     <a href="http://po.st/o7xVjp" target=_blank>http://po.st/o7xVjp</a></div></div></div>
+
